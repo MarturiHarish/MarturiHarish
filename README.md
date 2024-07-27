@@ -35,7 +35,7 @@
 
 ## 📫 Contact
 - **Email**: [harishharsha065@gmail.com](mailto:harishharsha065@gmail.com)
-- **LinkedIn**: [Connect with me](https://www.linkedin.com/in/harishharsha065)
+- **LinkedIn**: [Connect with me](https://www.linkedin.com/in/harish-marturi/)
 
 ## 🏆 Awards
 - Secured First Prize in the "Battle of Dance" organized by DIET VIBRAT.
